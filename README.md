@@ -69,6 +69,9 @@ To set APP Key
 
 ![ad507ee5-a573-4990-9bf9-21695b440c44](https://github.com/user-attachments/assets/4f4ce06d-905a-40b1-95c5-b53f1736818f)
 
+<img width="1600" height="1000" alt="image" src="https://github.com/user-attachments/assets/68955a53-0e9a-4cc9-8114-efbebf8ef74c" />
+
+
 ![0adf6648-7045-46ed-b524-7da96de9e36a](https://github.com/user-attachments/assets/4b25f90e-e3d0-4de4-829b-1f611a22b33f)
 
 
